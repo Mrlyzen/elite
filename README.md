@@ -35,3 +35,17 @@ $ python el1te.py
 # In Script Check Opsi Crack
 
 <img src="https://kosred.com/a/jhzbtz.jpg"/>
+
+# Thanks To Friends
+
+$ Fais Gans
+
+$ HikmatTzy
+
+$ YogzzTzy
+
+$ AlverdoTzy
+
+$ Mbokey Bhizer
+
+
