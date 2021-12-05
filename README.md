@@ -32,6 +32,10 @@ $ python el1te.py
 
 <img src="https://kosred.com/a/mwabs.jpg"/>
 
+# User Agent Mempercepat+Memperbanyak Crack
+
+$ Mozilla/5.0 (Macintosh; Intel Mac OS X 10.9; rv:24.0) Gecko/20100101 Firefox/24.0
+
 # In Script Check Opsi Crack
 
 <img src="https://kosred.com/a/jhzbtz.jpg"/>
